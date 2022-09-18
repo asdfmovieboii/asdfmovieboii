@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @asdfmovieboii
+- 👀 I’m interested in Coding and Cyber Security
+- 🌱 I’m currently learning Cyber Security
+- 💞️ I’m looking to collaborate on Oculus
+- 📫 How to reach me Discord asdfmovieboii#9060
+- ✉️ I'm Typically Avlble 10am-7pm(PST)
